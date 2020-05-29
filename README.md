@@ -1,1 +1,1 @@
-# Kings
+Kings without ruling children
